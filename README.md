@@ -1,0 +1,5 @@
+- 👋 Привет, я @Muhammadali159 
+- 👀 В свободное время я играю в игры, 
+- 🌱 В настоящее время я учу язык програмирования Python
+- 💞️ I’m looking to collaborate on X*****a
+- 📫 Чтобы связаться со мной: Uzmakom.uz@gmail.com
